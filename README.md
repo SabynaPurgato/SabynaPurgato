@@ -2,7 +2,7 @@
 - 👀 I’m interested in Recruiter, Hunting and constantly learning about technology
 - 📫 How to reach me: 5522992552133, linkdin - https://www.linkedin.com/in/sabynapurgato/, email: sabynatechrecruiter@gmail.com. 
 Contact me if you wanna a friend "hand" to find a job/new job or talking about your career.
-
+_________________________________________________________________________________________________________________________________
 - 👋 Olá, sou a @SabynaPurgato, uma Teach Recruiter brasileira.
 - 👀 Tenho interesse em recrutamento, Hunting e aprender constantemente sobre tecnologia.
 - 📫 Como me achar: 5522992552133, linkdin - https://www.linkedin.com/in/sabynapurgato/, email: sabynatechrecruiter@gmail.com. 
